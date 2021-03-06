@@ -9,4 +9,4 @@ ini masih jauh dari kata simple.
 bagi yang membutuhkan bisa langsung download aja.
 
 untuk yang berkenan bisa bantu memberikan saran via DM instagram
-@frandy008
+https://instagram.com/im_frandy_/
